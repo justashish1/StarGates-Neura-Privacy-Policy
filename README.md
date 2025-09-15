@@ -114,9 +114,7 @@ Data Protection Officer: Ashish Malviya
 
 Email: info@starengts.com
 
-Address: A-1001 Sliverchs Ltd, Hiranandani Estate, Thane West 400607
 
-Phone: +91 9819424646
 
 13. Governing Law
 This Privacy Policy is governed by the laws of India and any disputes will be resolved in accordance with those laws.
